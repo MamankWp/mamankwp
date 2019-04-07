@@ -1,2 +1,1 @@
-# mamankwp
-Gunakan Dengan Bijak
+# 1
